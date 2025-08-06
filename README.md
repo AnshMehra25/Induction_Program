@@ -44,7 +44,9 @@ The session concluded with important instructions regarding attendance criteria,
 ## DAY 3
 
 ## 🕐9:00 - 11:30
- ***Dr. Jaswinder Singh*** (Recognized by JaswinS Lab on Wheels) brought physics and maths to life through fun, simple, simplified experiments and demonstrations, also connected us with God.
-
+ ***Dr. Jaswinder Singh*** (Recognized by JaswinS Lab on Wheels) brought physics and maths to life through fun, simple, simplified experiments and demonstrations, also connected us with God. This session helped us a lot in understanding science. It was a good interactive session filled with fun and engaging activities.
+ 
 ## 🕐11:30 - 1:00
- ***Dr. Priya Darshni*** deliver us a beautiful lecture about "universal human values-1"
+ ***Dr. Priya Darshni*** deliver us a beautiful lecture about "universal human values-1". The lecture focused on importance of happiness , prosperity and focusing on real life goals. This lecture emphasized  that true suceess come from Right understanding , Relationship . 
+
+ ## DAY 4 
