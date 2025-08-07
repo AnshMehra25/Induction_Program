@@ -53,11 +53,11 @@ The session concluded with important instructions regarding attendance criteria,
 
  ## 🕐1:00 onwards (at auditorium)
 
-### Choosing the Right Path: GNDEC
+###***Choosing the Right Path: GNDEC***
 
 <ins>***Dr. Gurucharan Singh***</ins> Communicate to us selecting Guru Nanak Dev Engineering College (GNDEC) has proven to be a wise and meaningful decision. The institution not only stands out for its academic excellence but also reflects the values and teachings of Guru Nanak Dev Ji. His spiritual journeys, known as "Udasiyan," were aimed at spreading knowledge, truth, and service to humanity—principles that GNDEC continues to uphold in its educational environment.
 
-###  Benefits
+### Showcased CML club 
 <ins>***Lakhvir Singh***</ins> introduced us to the Center for Multi-Faceted Learning (CML) club and explained the various benefits of being a part of it. He emphasized that the club is designed to support holistic development by encouraging students to explore their creativity, enhance their communication and leadership skills, and continuously upgrade themselves in various domains. CML provides a platform for those who are eager to learn beyond textbooks, develop practical skills, and grow both personally and professionally. It is an excellent initiative for students who wish to discover new talents, collaborate with peers, and become confident, well-rounded individuals.
        He also introduced us to the NPTEL (National Programme on Technology Enhanced Learning), a government-backed initiative offering free online courses from top IITs and IISc. NPTEL helps students strengthen their academic foundation, gain industry-relevant skills, and earn certificates that add value to their resumes. It is a valuable resource for those who are self-driven and committed to continuous learning.
 
@@ -66,14 +66,20 @@ The session concluded with important instructions regarding attendance criteria,
 
 ### 9:30 Onwards (at auditorium )
  
+<ins>***Dr. Parminder Singh***</ins> : ***Insights on Student Life at GNDEC***
+
+Dr. Parminder Singh, Dean of Student Welfare, addressed the students and emphasized the importance of utilizing all four years of the B.Tech journey wisely. He encouraged students to not only focus on academics but also to continue pursuing their passions and hobbies, as these contribute to a balanced and fulfilling college experience.
+
+He highlighted the value of joining organizations like NCC, NSS, and various student-run societies and clubs, which play a vital role in building leadership, teamwork, and social responsibility. Dr. Parminder Singh also spoke about the numerous opportunities available to students at GNDEC that help in both personal and professional development.
 
 
+<ins>***Dr. Amit Kamra***</ins> : ***Digital Marketing Club showcase***
 
+Dr. Amit Kamra , Professor in the IT Department and in-charge of the Digital Marketing Club (DMC), introduced students to the club’s activities and its role in promoting GNDEC across various digital platforms. He explained how the club manages the college's online presence and provides students with practical exposure to digital content creation and marketing strategies.
 
+During the session, Dr. Khanda also showcased a video created by Navjot Singh, a member of the DMC, which highlighted the essence of the induction program. The video was engaging, creative, and well-received by the audience, giving a glimpse into the kind of innovative work the club encourages.
 
+ <ins>***Dr. Randhir Singh***</ins> :***Session on Exam Conduction and Academic Portal*** 
 
-
-
-
-
+Dr. Randhir Singh conducted an informative session on the conduction of exams and provided students with valuable insights into the Academic Portal of GNDEC. He explained how the portal is used to access important academic information, including exam schedules, attendance records, internal marks, and other academic updates. The session helped students understand the exam process and how to effectively use the portal for their academic planning and progress.
  
