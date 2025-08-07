@@ -62,8 +62,10 @@ The session concluded with important instructions regarding attendance criteria,
        He also introduced us to the NPTEL (National Programme on Technology Enhanced Learning), a government-backed initiative offering free online courses from top IITs and IISc. NPTEL helps students strengthen their academic foundation, gain industry-relevant skills, and earn certificates that add value to their resumes. It is a valuable resource for those who are self-driven and committed to continuous learning.
 
 
+## DAY 5 
 
-
+### 9:30 Onwards (at auditorium )
+ 
 
 
 
