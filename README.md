@@ -2,10 +2,10 @@
 
 ## DAY 1 
 
-## 🕥 8:30 - 9:30
+## 🕥 8:30 - 9:30 AM
 “Firstly, we started our batch with the blessings of Guru Sahiban at Gurudwara Sahib, which is situated in GNDEC. A very interesting thing to note is the shape of the Gurdwara Sahib—it is similar to a ship. It feels as if we are all in the Jahaz of Waheguru.”
 
-## 🕥 10:30 onwards (at auditorium)
+## 🕥 10:30 AM onwards (at auditorium)
  The lecture began by highlighting the remarkable achievement of the college in successfully completing **70 years** of excellence in education.
  After that, ***Harsimran Singh*** explained the faculty and infrastructure to the new students.
 
@@ -33,9 +33,10 @@ After the formal welcome session, we proceeded to our respective departments for
 
 ## DAY 2
 
-## 🕐 9:30 - 12:00
+## 🕐 9:30 - 12:00 AM
 Maths and English proficiency test conducted 
-## 1:00 onwards ( at Auditorium)
+
+## 🕐1:00 PM  onwards ( at Auditorium)
 Expert lecture by <ins>***Dr. Arashdeep Singh***</ins> on "Food : A Privtol Role in student's overall Wellness"
 After that Senior Ishmeet and Gurleen tell us about GitHub profile and Also provide us a demo of making arepository on Github profile.
 
@@ -43,15 +44,15 @@ The session concluded with important instructions regarding attendance criteria,
 
 ## DAY 3
 
-## 🕐9:00 - 11:30
+## 🕐9:00 - 11:30 AM
  <ins>***Dr. Jaswinder Singh***</ins> (Recognized by JaswinS Lab on Wheels) brought physics and maths to life through fun, simple, simplified experiments and demonstrations, also connected us with God. This session helped us a lot in understanding science. It was a good interactive session filled with fun and engaging activities.
  
-## 🕐11:30 - 1:00
+## 🕐11:30 AM - 1:00 PM
  <ins>***Dr. Priya Darshni***</ins> deliver us a beautiful lecture about "universal human values-1". The lecture focused on importance of happiness , prosperity and focusing on real life goals. This lecture emphasized  that true suceess come from Right understanding , Relationship . 
 
  ## DAY 5
 
- ## 🕐1:00 onwards (at auditorium)
+ ## 🕐1:00 PM onwards (at auditorium)
 
 ###***Choosing the Right Path: GNDEC***
 
@@ -64,7 +65,7 @@ The session concluded with important instructions regarding attendance criteria,
 
 ## DAY 5 
 
-### 9:30 Onwards (at auditorium )
+### 🕐9:30 AM Onwards (at auditorium )
  
 <ins>***Dr. Parminder Singh***</ins> : ***Insights on Student Life at GNDEC***
 
@@ -83,3 +84,18 @@ During the session, Dr. Khanda also showcased a video created by Navjot Singh, a
 
 Dr. Randhir Singh conducted an informative session on the conduction of exams and provided students with valuable insights into the Academic Portal of GNDEC. He explained how the portal is used to access important academic information, including exam schedules, attendance records, internal marks, and other academic updates. The session helped students understand the exam process and how to effectively use the portal for their academic planning and progress.
  
+## DAY 6
+
+### 🕐9:00 AM onwards 
+
+ <ins>***Shaffy Markar***</ins> :***Talk on the Benefits of Millets***
+
+Shaffy Markar, gold medalist and Vice President of GHSKMS, Ludhiana, delivered an insightful session on the nutritional and health benefits of superfood millets. She highlighted the rich nutrient profile of millets and their role in promoting a healthy lifestyle. Shaffy also discussed research indicating that incorporating millets into one’s diet can aid in the prevention of several diseases and, in some cases, support recovery—emphasizing the belief that cancer can be managed or even cured through the regular consumption of millets. Her talk inspired students to adopt healthier eating habits and explore the potential of traditional grains.
+
+
+
+
+
+
+
+
